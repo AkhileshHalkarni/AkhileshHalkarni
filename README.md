@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AkhileshHalkarni
+- 👀 I’m interested in learning something new everyday
+- I love to solve problems
